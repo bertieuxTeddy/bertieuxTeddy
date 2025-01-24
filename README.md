@@ -1,5 +1,4 @@
 ### Bonjour je suis Bertieux Teddy 👋
-* En ce moment, je médite sur mon projet à venir 🤪
 * 👯 Je cherche à collaborer sur des projets open-source et des initiatives communautaires.
 * 📫 Vous pouvez me contacter ici [teddymamo@outlook.fr](mailto:teddymamo@outlook.fr).
 ### Mes compétences 🫡
